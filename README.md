@@ -3,6 +3,8 @@
 - 🌱 I’m currently learning MBA in major- Finance specialization.
 - 💞️ I’m looking to work in  Finance field.
 - 📫 Mobile no- 9921420769, Email- natani.dimple@gmail.com
+- My strengths are- Communication skills, Leadership Skills, Writing skills.
+- My other skills are- Results oriented, Hardworking, Punctual.
 
 <!---
 Dimpal1999/Dimpal1999 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
